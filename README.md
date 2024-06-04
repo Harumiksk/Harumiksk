@@ -4,6 +4,6 @@ ola
 - adoro academia
 - utilizo esse espaço pra ganhar nota
 
-  ### nao tente entrar em contato comigo porque não vou responder
+  ### nao tente entrar em contato 
 
   ![](https://media1.tenor.com/m/mpM226xHdO4AAAAd/kiss.gif)
